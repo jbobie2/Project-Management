@@ -34,6 +34,6 @@ Rachel Chong
 Noam Gomez  
 Anantya Kasturi   
 Harshitha Vetrivel
-
+Jacob Bobiek
 Zhuokai Wu
 Diego Navarro
